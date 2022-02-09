@@ -1,6 +1,6 @@
 # sex
 
-"Sex 👉👌👉👌👉👌 is a temptation ,
+Sex 👉👌👉👌👉👌 is a temptation ,
 caused by 😓 a sensation 
 where 🤷 a boy 🏻 sticks his 🤓 location 🤓
 into 👉✅ a girl's 👱‍♀️ destination 
